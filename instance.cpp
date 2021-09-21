@@ -1,2 +1,1 @@
-No nigger
-void
+no
